@@ -1,0 +1,1 @@
+People can go more than few weeks without food according to some existed real stories , but I do not intent to go that far. 
